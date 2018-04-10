@@ -1,2 +1,0 @@
-# sgky
-ichatforsgky
